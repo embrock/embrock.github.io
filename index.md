@@ -8,3 +8,11 @@
 At IMPACT, I work with various Earth Science 🌎 data, products and algorithms.
 
 🎨  When I'm not working, I like <watching disney movies>.
+
+Favorite quote
+<It's a trap>
+
+Countries visited
+
+Mexico
+Belize
